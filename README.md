@@ -23,7 +23,7 @@ enjoy.
 role. I am not a p###phile, I am not a p#ppytwt,
 I am not a Wilbur Soot supporter, and I will not
 tolerate any people saying that I am or more.
-Please remember that I have ADHD and I'm going
+Please remember that I have AUTISM and I'm going
 through a rough time in my own personal life.
 Do not get upset when I don't give you "attention"
 and I say that I am busy.
