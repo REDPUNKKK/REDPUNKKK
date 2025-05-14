@@ -2,9 +2,11 @@
 
 HE/HIM/THEY COLLECTIVELY         ———          🇵🇷🇩🇪
 
-👉🏽 — Contact ; Discord ; craftingofthenerd_74812
+👉🏽 — Contact ; Discord ; craftingofthenerd_74812 
+
    TikTok ; @red_punkz
-Twitch ; red_punkk
+
+   Twitch ; red_punkk
 
 👉🏽 — Info ; Mostly active from 2:30 PM CST —> 8—9 PM CST.
 TRAUMAGENIC SYS, ENDOGENIC DNI
